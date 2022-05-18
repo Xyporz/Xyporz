@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-<img align="right" src="https://count.getloli.com/get/@:Xyporz?theme=gelbooru">
+<img align="right" src="https://count.getloli.com/get/@:Xyporz?theme=gelbooru-h">
 
 ## About
 
