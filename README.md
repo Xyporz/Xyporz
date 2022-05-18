@@ -1,5 +1,11 @@
 ### Hi there 👋
 
+<img align="right" src="https://count.getloli.com/get/@:sanqi377?theme=moebooru">I'm [SanQi](https://www.qblog.cc).
+
+## About
+
+📫 My email: xieyingpeng2017@email.szu.edu.cn
+
 <!--
 **Xyporz/Xyporz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
