@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-<img align="right" src="https://count.getloli.com/get/@:sanqi377?theme=moebooru">I'm [Yingpeng Xie](https://www.qblog.cc).
+<img align="right" src="https://count.getloli.com/get/@:sanqi377?theme=moebooru">I'm Yingpeng Xie.
 
 ## About
 
