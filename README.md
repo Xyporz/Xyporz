@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-<img align="right" src="https://count.getloli.com/get/@:Xyporz?theme=rule34">
+<img align="center" src="https://count.getloli.com/get/@:Xyporz?theme=rule34">
 
 ## About
 
